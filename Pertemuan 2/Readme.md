@@ -1,1 +1,1 @@
-
+TUGAS TULIS
